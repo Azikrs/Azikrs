@@ -6,5 +6,4 @@
 Edição e motion design há 6 anos
 foco em motion e commercial design
 Experiência com criação, animação e finalização de projetos
-Cursando técnico em software e hardware
-Inglês intermediário (leitura técnica)
+Cursando técnico em software e hardware, inglês intermediário (leitura técnica)
