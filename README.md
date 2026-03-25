@@ -4,7 +4,7 @@
 16 — Americana, SP
 
 Edição e motion design há 6 anos
-Foco em motion e commercial design
-Experiência com criação, animação e finalização de peças digitais
+foco em motion e commercial design
+Experiência com criação, animação e finalização de projetos
 Cursando técnico em software e hardware
 Inglês intermediário (leitura técnica)
