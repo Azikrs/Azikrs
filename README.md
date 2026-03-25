@@ -1,5 +1,4 @@
 ## Portfólio
-
 **Gabriel Brito**
 16 — Americana, SP
 
