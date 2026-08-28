@@ -9,4 +9,4 @@ cursando técnico em software e hardware, inglês avançado.
 
 # Minhas Skills
 
-[![My Skills](https://skillicons.dev/icons?i=js,html,css,php,cs,ae,linux,figma)](https://skillicons.dev)
+[![My Skills](https://skillicons.dev/icons?i=js,html,css,php,cs,ae,figma)](https://skillicons.dev)
