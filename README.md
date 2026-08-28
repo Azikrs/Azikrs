@@ -1,6 +1,6 @@
 ## Portfólio
 **Gabriel Brito**
-16 — Americana, SP
+16 anos — Americana, SP
 
 Edição e motion design há 6 anos
 foco em Motion e Commercial Design,
